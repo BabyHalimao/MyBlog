@@ -5,4 +5,7 @@
 2. Brief
 
 ### About me
-To be add
+One piece crazy fans
+
+### Brief
+I will sail one day
